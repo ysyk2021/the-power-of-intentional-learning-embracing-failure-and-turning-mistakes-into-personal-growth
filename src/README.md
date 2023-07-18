@@ -8,5 +8,4 @@ Throughout this book, we will discuss techniques for developing a growth mindset
 
 Whether you are a student, a professional, or simply someone looking to grow and develop, this book provides valuable insights and strategies for integrating intentional learning into your life. We hope that by reading "The Power of Intentional Learning: Embracing Failure and Turning Mistakes into Personal Growth," you will be inspired to embrace intentional learning and achieve your full potential.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
