@@ -1,5 +1,3 @@
-Techniques for Developing a Growth Mindset
-===================================================
 
 A growth mindset is a powerful mindset that enables individuals to embrace challenges, persist in the face of setbacks, and believe in their ability to learn and grow. In this chapter, we explore techniques and strategies for developing a growth mindset that fosters personal growth and resilience.
 

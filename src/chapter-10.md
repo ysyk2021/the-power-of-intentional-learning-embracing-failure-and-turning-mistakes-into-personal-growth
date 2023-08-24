@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 In this book, we have explored the power of intentional learning and its role in personal and professional growth. We have discussed techniques for developing a growth mindset, building self-awareness, effectively learning from failure, applying intentional learning to personal growth, and more. In this final chapter, we will summarize our key takeaways and offer some final thoughts and recommendations for readers.
 

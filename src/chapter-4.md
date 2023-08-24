@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is crucial for intentional learning. It involves understanding one's own strengths, weaknesses, values, and emotions. In this chapter, we will explore techniques for building self-awareness in relation to intentional learning, identifying strengths and weaknesses, and building resilience and adaptability.
 

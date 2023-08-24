@@ -1,5 +1,3 @@
-Chapter 5: Embracing Feedback and Criticism
-===========================================
 
 Feedback and criticism are essential components of intentional learning. They provide individuals with valuable insights into their strengths and weaknesses, allowing them to improve their performance and achieve personal growth. In this chapter, we will explore the impact of feedback and criticism on intentional learning, techniques for embracing feedback and criticism, and strategies for building communication and interpersonal skills.
 

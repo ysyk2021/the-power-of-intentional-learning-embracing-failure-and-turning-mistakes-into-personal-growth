@@ -1,5 +1,3 @@
-Setting Goals for Personal Growth through Intentional Learning
-=======================================================================
 
 In this chapter, we will explore the significance of setting goals for personal growth through intentional learning. We will delve into the process of goal setting, discuss the benefits of intentional learning in achieving these goals, and provide practical strategies to help you set and pursue your personal growth objectives.
 

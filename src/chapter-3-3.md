@@ -1,5 +1,3 @@
-Overcoming Obstacles to Effective Intentional Learning
-===============================================================
 
 Intentional learning is a powerful tool for personal growth and success, but it is not without its challenges. In this chapter, we explore common obstacles that individuals may encounter on their intentional learning journey and strategies for overcoming them.
 

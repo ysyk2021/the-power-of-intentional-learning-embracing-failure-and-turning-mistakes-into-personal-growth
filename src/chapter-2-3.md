@@ -1,5 +1,3 @@
-Types of Intentional Learning
-======================================
 
 In "The Power of Intentional Learning: Embracing Failure and Turning Mistakes into Personal Growth," we explore various types of intentional learning. Each type represents a unique approach to acquiring knowledge and skills, and understanding their differences can help individuals design effective learning strategies. In this chapter, we will delve into different types of intentional learning and examine their characteristics and applications.
 

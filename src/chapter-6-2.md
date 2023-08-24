@@ -1,5 +1,3 @@
-Techniques for Embracing Feedback and Criticism
-========================================================
 
 In this chapter, we will explore techniques for embracing feedback and criticism as a powerful tool for intentional learning. By developing a mindset that embraces feedback and views criticism as an opportunity for personal growth, you can harness the transformative power of constructive feedback to improve your skills, advance your knowledge, and enhance your overall performance.
 

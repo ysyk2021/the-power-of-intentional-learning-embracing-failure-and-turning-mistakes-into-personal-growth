@@ -1,5 +1,3 @@
-Using Intentional Learning for Career Development
-==========================================================
 
 In this chapter, we will explore how intentional learning can be utilized to support career development and advancement. We will delve into strategies and practices that individuals can employ to enhance their professional skills, expand their knowledge, and achieve their career goals.
 

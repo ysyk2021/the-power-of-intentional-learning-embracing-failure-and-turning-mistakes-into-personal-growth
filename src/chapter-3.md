@@ -1,5 +1,3 @@
-Chapter 2: Developing a Growth Mindset for Intentional Learning
-===============================================================
 
 A growth mindset is an essential component of intentional learning. It involves embracing challenges, persisting through obstacles, and seeing effort as a path to mastery. In this chapter, we will explore the importance of a growth mindset in intentional learning, techniques for developing a growth mindset, and how to overcome obstacles to effective intentional learning.
 

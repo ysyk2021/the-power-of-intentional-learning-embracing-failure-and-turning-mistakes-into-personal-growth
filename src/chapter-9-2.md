@@ -1,5 +1,3 @@
-Setting Goals for Professional Growth through Intentional Learning
-===========================================================================
 
 In this chapter, we will explore the importance of setting goals for professional growth and how intentional learning can be leveraged to achieve those goals. We will discuss strategies and techniques to help individuals define their objectives, create actionable plans, and make progress in their careers.
 

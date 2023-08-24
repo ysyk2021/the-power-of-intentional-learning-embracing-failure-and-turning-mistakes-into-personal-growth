@@ -1,5 +1,3 @@
-The Impact of Feedback and Criticism on Intentional Learning
-=====================================================================
 
 In this chapter, we will delve into the significant role that feedback and criticism play in intentional learning. We will explore how constructive feedback can fuel personal growth, enhance self-awareness, and help individuals transform mistakes into valuable learning experiences.
 

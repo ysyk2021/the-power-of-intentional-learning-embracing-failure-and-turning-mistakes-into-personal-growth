@@ -1,5 +1,3 @@
-Chapter 8: Applying Intentional Learning to Professional Growth
-===============================================================
 
 Intentional learning is a powerful tool for professional growth, enabling individuals to enhance their skills, knowledge, and abilities in order to achieve success in their careers. In this chapter, we will explore how intentional learning can be used for career development, setting goals for professional growth, and building leadership and teamwork skills.
 

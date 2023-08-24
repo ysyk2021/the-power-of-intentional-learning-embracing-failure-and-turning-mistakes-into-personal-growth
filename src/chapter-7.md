@@ -1,5 +1,3 @@
-Chapter 6: Balancing Accountability and Forgiveness
-===================================================
 
 Intentional learning involves taking responsibility for one's own growth and development, which includes being accountable for mistakes and failures. However, it is also important to balance accountability with forgiveness and self-compassion in order to maintain a positive and constructive learning environment. In this chapter, we will explore the role of balancing accountability and forgiveness in intentional learning, techniques for achieving balance, and how building self-awareness and emotional intelligence can support this process.
 

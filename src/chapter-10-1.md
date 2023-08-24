@@ -1,5 +1,3 @@
-The Ongoing Journey of Effective Intentional Learning
-=================================================================
 
 Intentional learning is an ongoing journey that requires continuous effort and a commitment to personal and professional growth. In this chapter, we will discuss the ongoing journey of effective intentional learning and the importance of maintaining a growth mindset.
 
