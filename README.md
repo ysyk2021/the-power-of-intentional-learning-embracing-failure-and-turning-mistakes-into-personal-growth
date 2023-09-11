@@ -1,3 +1,6 @@
+# The Power of Intentional Learning: Embracing Failure and Turning Mistakes into Personal Growth
+
+Book Link: [https://zhengpublishing.com/the-power-of-intentional-learning-embracing-failure-and-turning-mistakes-into-personal-growth/](https://zhengpublishing.com/the-power-of-intentional-learning-embracing-failure-and-turning-mistakes-into-personal-growth/)
 
 In today's fast-paced and ever-changing world, the ability to learn and adapt is critical for personal and professional success. But learning can be challenging, especially when faced with failure or setbacks. The fear of failure often prevents individuals from taking risks and trying new things, leading to missed opportunities for growth and development.
 
